@@ -7,7 +7,7 @@
 
 ## Lyrics
 
-**Uploaded The File**
+Uploaded The File
 ---
 
 ## License
