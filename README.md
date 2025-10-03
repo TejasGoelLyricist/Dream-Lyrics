@@ -7,53 +7,7 @@
 
 ## Lyrics
 
-**Verse 1**
-Her eyes are stars that never fade,
-A gentle light my soul has craved.
-Her laughter lingers in the air,
-A fleeting warmth that feels so rare.
-Every step, the world turns still,
-She moves like rivers, soft and real.
-
-**Chorus (Hook – “Dream”)**
-Dream… she’s the whisper in my night,
-A shadow dancing in the light.
-Dream… though she’s slipping through my hands,
-I reach for her, but time won’t bend.
-She’s a dream I can’t let go,
-The only truth my heart still knows.
-
-**Verse 2**
-Once I held her close, the night was ours,
-We painted skies with fleeting stars.
-But morning came and stole her name,
-The world was real, but not the same.
-Now I walk these empty streets,
-Where echoes of her voice still meet.
-
-**Chorus (Hook – “Dream”)**
-Dream… she’s the whisper in my night,
-A shadow dancing in the light.
-Dream… though she’s slipping through my hands,
-I reach for her, but time won’t bend.
-She’s a dream I can’t let go,
-The only truth my heart still knows.
-
-**Bridge**
-If only dreams could bring her near,
-Erase the silence, kill the fear.
-But when I wake, she disappears,
-A ghost of love I hold sincere.
-
-**Chorus (Reprise)**
-Dream… she’s the whisper in my night,
-A shadow dancing in the light.
-Dream… though she’s gone, she lives in me,
-Forever lost, yet meant to be.
-She’s a dream I can’t let go,
-The only truth my heart still knows.
-
-
+**Uploaded The File**
 ---
 
 ## License
